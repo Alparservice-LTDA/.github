@@ -67,7 +67,7 @@ Recebemos o Enablement Award da ServiceNow pelo compromisso em formar talentos e
 
 ## Quem confia na Alpar
 
-Grupo Boticário, Rede, Klabin e BRF estão entre os clientes que contam com a gente.
+ABInBev, Assaí, Grupo Boticário, Rede, Klabin e BRF estão entre os clientes que contam com a gente.
 
 ## Fale com a gente
 
